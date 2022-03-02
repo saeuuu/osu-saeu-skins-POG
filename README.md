@@ -1,1 +1,1 @@
-# osu-saeu-skins-POG
+# Saeu's skins for osu!
