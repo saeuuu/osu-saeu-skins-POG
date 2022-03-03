@@ -33,6 +33,9 @@
 # [- Emerald Momoko ](https://puu.sh/ByTfP/bb648793d7.osk)
 ![](https://osu.ppy.sh/ss/17598752/ebba)
 
+# [- Seouless v10 ](https://drive.google.com/u/0/uc?id=1Y0IvxhFFVWWPp1bzKbh71JePTmxIdsoy&export=download)
+![https://osu.ppy.sh/ss/17601220/384b]
+
 # [- fcuk furry edit 2021/ReedKatt skin ](https://puu.sh/I6wl7/89fff3e7c1.osk)
 ![](https://osu.ppy.sh/ss/17598756/c73f)
 
